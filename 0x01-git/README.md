@@ -1,1 +1,1 @@
-I knew the road is tough but i must succeed
+Always Remind myself YET, i must succeed
