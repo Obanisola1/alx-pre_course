@@ -1,0 +1,1 @@
+I knew the road is tough but i must succeed
